@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with ultimate blur sniper bot | stop-loss + multi-chain-support. Featuring stop-loss and multi-chain-support, it's the best choice for automated
 
 
 
